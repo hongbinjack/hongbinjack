@@ -3,5 +3,8 @@
 ### Contact me
 * **MyEmail:** hongbin666666@gmail.com
 * **MyQQ:** 2623484066
+* **wechat：**
+
+![image](https://user-images.githubusercontent.com/106834223/229448163-a55896f0-3563-46c8-a4ba-77fefe0e9980.png)
 
 
